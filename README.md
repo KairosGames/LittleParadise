@@ -1,4 +1,4 @@
-# LittleParadise
+# Little Paradise
 
 Dear visitor,    
 <br/>
